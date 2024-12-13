@@ -9,7 +9,7 @@
     -   Nguyễn Trường Thái Khang - 2211458
     -   Nguyễn Xuân Hy - 2211409
     -   Nguyễn Đức Phương - 2312749
-    -   3
+    -   3 Võ Trần Đăng Bách -2210188
     -   4
 
 ## Overview
